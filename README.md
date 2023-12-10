@@ -1,0 +1,4 @@
+- 👋 Hello, I'm Emir Tuğra.
+- 👀 I am interested in technology and math.
+- 🌱 I am currently studying middle school in Turkey.
+- 📫 You can reach me on Instagram @_emirtdag_, emirtdag2310@outlook.com.tr e-mail address or emirtdag2310@gmal.com e-mail addresses. I especially use Instagram frequently.
